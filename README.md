@@ -1,5 +1,5 @@
 # fumi.moe
-~portfolio ｡･ﾟ･(ﾉД`)ヽ(￣ω￣ )
+OLD portfolio ｡･ﾟ･(ﾉД`)ヽ(￣ω￣ )
 
 -In PROGRESS-
 
